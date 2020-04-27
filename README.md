@@ -96,4 +96,4 @@ The real goal here is a Great Bowel Shift, as just described.
 
 Thank you for reading
 
-Inspired by this tweet from a Serbian nationalist https://twitter.com/CursedBalkanYT/status/1236888681664954368/photo/1
+Inspired by [this YouTube comment from a Serbian nationalist](https://twitter.com/CursedBalkanYT/status/1236888681664954368/photo/1)
