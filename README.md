@@ -1,6 +1,6 @@
 A message from David Mears
 
-## I have set up a new Web Site for my conspiracy about Proto Indo European. 
+## I have set up a new Web Post for my conspiracy theory about Proto Indo European.
 
 # READ AND UNDERSTAND:
 
@@ -8,7 +8,7 @@ A message from David Mears
 
 ## The field of HISTORICAL LINGUISTICS IS A DEN OF LIARS im-bed with ANTI-EU EXTREMISTS!
 
-Pay Attention, Britain!
+There is no 'P. I. E.'. Pay Attention, Britain!
 
 ### The theory of ‘Proto In-Do European’ is being *Spread by the Government* using the '5 G' phone towers and it is being im-bedded in our Lungs in chem-trails and our Mouths using Fluoride Toothpaste (disgusting)
 
@@ -16,21 +16,21 @@ First off, Proto Indo-European was invented by Philip Linguistics, a *Brexiteer*
 
 ### But their ideology is anything but 'International' - and there ethics are anything but 'fun'!!
 
-## The government has put Fluoride into our Toothpaste as a way to speed up the processes of sound change which are lenfiying our dental plosives and taking us further from Esperan’to.
+## The government has put Fluoride into our Toothpaste as a way to speed up the processes of sound change which are *lenifying* our dental plosives and taking us further from Esperan’to.
 
-The effect is strongest in London and diffuses out across the country over decades and centuries.
+The effect is strongest in London and diffuses out across the country over decades (tens of years) and centuries (hundreds of years).
 
 ### Have you noticed that in London dental fricatives have started to be replaced by labiodental fricatives?
 
-That is the Fluoride Toothpaste talking - which used to be known as Thluoride Thoothpaste and which one day soon will be called Fluoride Foofpaste!
+That is the Fluoride Toothpaste talking - which used to be known as Thluoride Thoothpaste and which one day soon will be called *Fluoride Foofpaste*!
 
-### (Just compare the strong Old Latin word for toothpaste: ‘pasta al dente’.)
+### (Just compare the strong Old Latin word for toothpaste: *pasta al dente*.)
 
 # Chemtrails: The Silent Lenifier
 
 The chemicals from planes are also helping the process more generally by weakening the pulmonary pressure from our lungs.
 
-### This effect the Philologists have called the ‘Germanic Sound Shift’ but it is known that it is because of the Chemicals.
+### This effect the Philologists have called the *Germanic Sound Shift* but it is known that it is because of the Chemicals.
 
 This means that Latin ‘pater’ weakened (lenified) to English ‘father’ (p>f), ‘tres’ became ‘three’ (t>th), ‘centum’ became ‘hundred’ (k>χ>h), and ‘quando’ became ‘when’ (kw>χw>hw>w).
 
@@ -72,7 +72,7 @@ Conveniently!
 
 Prooto Indo European (or ‘Proto Window European’) is actually a secret project to DEFENESTRATE BRITAIN from Europe.
 
-### The original language of Europe was called LATIN which the Romans brought along with their Pax Romana (packs of lettuce given as a peace offering).
+### The original language of Europe was called LATIN (Lingua Ab Tempore Initii Nostri) which the Romans brought along with their Pax Romana (packs of lettuce given as a peace offering).
 
 Modern Latin is known as ESPERATNO which means “HOPE” and is an anagram of Saent E(u)ropa. This is a reference to Saint Europe, the proton saint of Europe in Roman Catholicism.
 
