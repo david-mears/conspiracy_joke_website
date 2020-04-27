@@ -1,10 +1,14 @@
 A message from David Mears
 
-READ AND UNDERSTAND:
-‘PROTO-INDO-EUROPEAN’ IS A CONSPIRACY! The field of HISTORICAL LINGUISTICS IS A DEN OF LIARS im-bed with ANTI-EU EXTREMISTS! 
+# READ AND UNDERSTAND:
+
+## ‘PROTO-INDO-EUROPEAN’ IS A CONSPIRACY!
+
+## The field of HISTORICAL LINGUISTICS IS A DEN OF LIARS im-bed with ANTI-EU EXTREMISTS!
+
 The theory of ‘Proto In-Do European’ is being Spread by the Government using the 5G phone towers and it is being im-bedded in our Lungs in chemical trails and our Mouths using Fluoride Toothpaste (disgusting)
 
-First off, Proto Indo-European was invented by Philip Linguistics, a Brexiteer. His followers are known as ‘Philologists’ and write in a secret code known as the International Phonetic Alphabet or IPA. But their ideology is anything but International!
+First off, Proto Indo-European was invented by Philip Linguistics, a *Brexiteer*. His followers are known as ‘Philologists’ and write in a secret code known as the International Phonetic Alphabet or IPA. But their ideology is anything but International!
 
 The government has put Fluoride into our Toothpaste as a way to speed up the processes of sound change which are lenfiying our dental plosives and taking us further from Esperan’to. The effect is strongest in London and diffuses out across the country over decades and centuries. Have you noticed that in London dental fricatives have started to be replaced by labiodental fricatives? That is the Fluoride Toothpaste talking - which used to be known as Thluoride Thoothpaste and which one day soon will be called Fluoride Foofpaste! (Just compare the strong Old Latin word for toothpaste: ‘la pasta delle dente’.) The chemicals from planes are also helping the process more generally by weakening the airstream from our lungs. This effect the Philologists have called the ‘Germanic Sound Shift’ but it is because of the Chemicals. This means that Latin ‘pater’ weakened (lenified) to English ‘father’ (p>f), ‘tres’ became ‘three’ (t>th), ‘centum’ became ‘hundred’ (k>χ>h), and ‘quando’ became ‘when’ (kw>χw>hw>w).
 
