@@ -44,7 +44,7 @@ This will improve your literacy AND slow the false spread of Germanic Words into
 
 ### And if you see a ghost, speak Latin to it, as this will intimidate it ('spook' it).
 
-## 5G and CORVID-19
+## 5G and CORVID-19: Carnivorous Coronavirus
 
 ### 5G is also responsible for CORVID-19, a bird flu popular among crows in 2019.
 
@@ -95,3 +95,5 @@ The real goal here is a Great Bowel Shift, as just described.
 # LEARN LATIN AND SAVE BRITAIN
 
 Thank you for reading
+
+Inspired by this tweet from a Serbian nationalist https://twitter.com/CursedBalkanYT/status/1236888681664954368/photo/1
